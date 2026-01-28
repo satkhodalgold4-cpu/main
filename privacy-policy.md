@@ -96,7 +96,7 @@ This Privacy Policy may be updated from time to time. Any changes will be reflec
 If you have questions or concerns regarding this Privacy Policy, please contact:
 
 **App Name:** Sat Khodal Gold App  
-**Email:** support@example.com
+**Email:** satkhodalgold4@gmail.com
 
 ---
 
